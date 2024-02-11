@@ -1,7 +1,7 @@
 # shax2 skins
 
 # [Yugen okinotori](https://shax2.s-ul.eu/Smmc4gZ5)
-<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019323857928192/screenshot293.jpg"/>
+<img src="[https://cdn.discordapp.com/attachments/1204012273862058054/1204019323857928192/screenshot293.jpg](https://media.discordapp.net/attachments/1204012273862058054/1204019323857928192/screenshot293.jpg?ex=65d33560&is=65c0c060&hm=b5070fe8aa77975a4b3bfef0314311c9e6b4e58335d8ba80d597ebaf3cdaad70&=&format=webp&width=832&height=468)"/>
 
 # [tekkito legoshii Yugen](https://shax2.s-ul.eu/jyag3eF4)
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019369148026900/screenshot296.jpg"/>
