@@ -9,6 +9,21 @@
 # [tekkito shige Yugen](https://shax2.s-ul.eu/XHMRT8uG)
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019419031011338/screenshot299.jpg"/>
 
+# [tekkito2Y](https://shax2.s-ul.eu/lL9xyPuw)
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1208074451753762906/screenshot315.jpg?ex=65e1f602&is=65cf8102&hm=b49d3d24f4075c48eed71fa1be826f460a136984c4f5fa141a287ea0db0d8164&"/>
+
+# [Vaxei_2023 Yugened](https://shax2.s-ul.eu/ittrvlou)
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1208074452034920551/screenshot316.jpg?ex=65e1f602&is=65cf8102&hm=75ed2235fa4abf701bdc3cbd2407fead48eb237c6c88a71088db95cde345bc7c&"/>
+
+# [yugebalnix2](https://shax2.s-ul.eu/X3nZsZgN)
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1208074452408209468/screenshot317.jpg?ex=65e1f602&is=65cf8102&hm=0ffcc3ca7b6fda041a708cb0ac965cf6a21d68d92b878f8ef54c533f5513bfc9&"/>
+
+# [+GN hidden potential](https://shax2.s-ul.eu/lqdyd30u)
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1208074959805751388/screenshot318.jpg?ex=65e1f67b&is=65cf817b&hm=5b5e69cc7cf9f0f6291baa74fb446b1877bb54b2363eacb8789ba7071b2519e4&"/>
+
+# [mastaszYugen](https://shax2.s-ul.eu/fuCghSsO)
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1208074451430805574/screenshot314.jpg?ex=65e1f602&is=65cf8102&hm=e521f8f5d724308f386ed754c5145704d4f12c2b1aa9a0e8c82c4ec457eec4ff&"/>
+
 # [Seoul v11 Asta Edit](https://shax2.s-ul.eu/D3SA6DAg)
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019474668195871/screenshot301.jpg?ex=65d33584&is=65c0c084&hm=8cd8a3c4608d7d2a7799312aaf7c88f135a9bfd8ca45b3066b2ca6f5075c4098&"/>
 
