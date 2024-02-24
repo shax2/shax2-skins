@@ -31,7 +31,7 @@
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1208074451430805574/screenshot314.jpg?ex=65e1f602&is=65cf8102&hm=e521f8f5d724308f386ed754c5145704d4f12c2b1aa9a0e8c82c4ec457eec4ff&"/>
 
 # [Seoul v11 Asta Edit](https://shax2.s-ul.eu/D3SA6DAg)
-<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019474668195871/screenshot301.jpg?ex=65d33584&is=65c0c084&hm=8cd8a3c4608d7d2a7799312aaf7c88f135a9bfd8ca45b3066b2ca6f5075c4098&"/>
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019474668195871/screenshot301.jpg?ex=65e5aa84&is=65d33584&hm=4ed16979ac6587a747b50b950cb0484a45cdbfce5c080a3cd94737418476aa50&"/>
 
 # [tlqkf](https://shax2.s-ul.eu/8bOoKSeF)
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019564963434587/screenshot305.jpg?ex=65d33599&is=65c0c099&hm=7baae36d2be114d8f08ed876f6f392b91a6f89c18c99aa8047caa10904f3cc5b&"/>
