@@ -1,7 +1,13 @@
 # shax2 skins
 
+# [bowdownO](https://shax2.s-ul.eu/CThUkybh)
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1210978153141510154/screenshot331.jpg?ex=65ec864a&is=65da114a&hm=ff52dedd559dbb2f306fa96af453209fd7d812d828e71876aaac6f942a71143a&"/>
+
 # [Yugen okinotori](https://shax2.s-ul.eu/Smmc4gZ5)
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019323857928192/screenshot293.jpg?ex=65d33560&is=65c0c060&hm=b5070fe8aa77975a4b3bfef0314311c9e6b4e58335d8ba80d597ebaf3cdaad70&"/>
+
+# [BubleSupp2Y](https://shax2.s-ul.eu/Spjozq9H)
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1210978196510736485/screenshot328.jpg?ex=65ec8654&is=65da1154&hm=c9d59a86e59a33b97e946dc4d88be81c02c1c7a6be5f9f599e0a486225f05f4d&"/>
 
 # [tekkito legoshii Yugen](https://shax2.s-ul.eu/jyag3eF4)
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019369148026900/screenshot296.jpg?ex=65d3356b&is=65c0c06b&hm=61b359e74a7ad26e4112aecd7f6ab120103999afd90a9da1ef0a06a8aeed382d&"/>
