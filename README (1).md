@@ -10,7 +10,7 @@
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1210978196510736485/screenshot328.jpg?ex=65ec8654&is=65da1154&hm=c9d59a86e59a33b97e946dc4d88be81c02c1c7a6be5f9f599e0a486225f05f4d&"/>
 
 # [tekkito legoshii Yugen](https://shax2.s-ul.eu/jyag3eF4)
-<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019369148026900/screenshot296.jpg?ex=65d3356b&is=65c0c06b&hm=61b359e74a7ad26e4112aecd7f6ab120103999afd90a9da1ef0a06a8aeed382d&"/>
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019369148026900/screenshot296.jpg?ex=65e5aa6b&is=65d3356b&hm=a8392b9e35559904dedfdd526e39a1a95d73c07aad35ea1256f09d983bcedda4&"/>
 
 # [tekkito shige Yugen](https://shax2.s-ul.eu/XHMRT8uG)
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019419031011338/screenshot299.jpg?ex=65dc6ff7&is=65c9faf7&hm=d542b3ab52ce043bf7cdc42d976e608558dc3573694002a4fb8064d325364847&"/>
