@@ -34,7 +34,7 @@
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019474668195871/screenshot301.jpg?ex=65e5aa84&is=65d33584&hm=4ed16979ac6587a747b50b950cb0484a45cdbfce5c080a3cd94737418476aa50&"/>
 
 # [tlqkf](https://shax2.s-ul.eu/8bOoKSeF)
-<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019564963434587/screenshot305.jpg?ex=65d33599&is=65c0c099&hm=7baae36d2be114d8f08ed876f6f392b91a6f89c18c99aa8047caa10904f3cc5b&"/>
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019564963434587/screenshot305.jpg?ex=65e5aa99&is=65d33599&hm=6cdaf90b493964a5d4df22a949319c38ad5c7f7ef303f1bf680168b672f0d7b9&"/>
 
 # [voprosoffv1](https://shax2.s-ul.eu/qQiqj90j)
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019693623451668/screenshot310.jpg?ex=65d335b8&is=65c0c0b8&hm=cbe552e14270aff82372c3132b32e86358a08133b1508e66e77e61ca36056960&"/>
