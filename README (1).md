@@ -46,7 +46,7 @@
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019521736671262/screenshot303.jpg?ex=65d3358f&is=65c0c08f&hm=5f87dbeb661f2a687f38e8482de12985648d10c4058fae9b141fa95825f3fe0a&"/>
 
 # [dddx15dt](https://shax2.s-ul.eu/wGMuhFVG)
-<img src="https://imgur.com/CzELrP0"/>
+<img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019597318291556/screenshot306.jpg?ex=65e5aaa1&is=65d335a1&hm=520ba9889c0b9ce022f24e5b117d4fd06e7928f265b8acfb16b6335cd705f48b&"/>
 
 # [Rohulk 5.0Yugen](https://shax2.s-ul.eu/3pr8jpfb)
 <img src="https://cdn.discordapp.com/attachments/1204012273862058054/1204019237455396864/screenshot288.jpg?ex=65d3354b&is=65c0c04b&hm=1d0b910cd9268f843dd4661fcf0bf02b088d65addad8c8b626c1895978e9cd21&"/>
