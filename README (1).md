@@ -7,7 +7,7 @@
 <img src="https://shax2.s-ul.eu/CzLosYnE"/>
 
 # [azerinodown](https://shax2.s-ul.eu/QgUwBt8o)
-<img scr="https://shax2.s-ul.eu/oaJWLBrg"/>
+<img src="https://shax2.s-ul.eu/oaJWLBrg"/>
 
 # [BubleSupp2Y](https://shax2.s-ul.eu/Spjozq9H)
 <img src="https://shax2.s-ul.eu/irdaccLx"/>
