@@ -6,6 +6,18 @@
 # [Yugen okinotori](https://shax2.s-ul.eu/Smmc4gZ5)
 <img src="https://shax2.s-ul.eu/CzLosYnE"/>
 
+# [Yuyuko Saigyouji](https://shax2.s-ul.eu/qC4ZcseA)
+<img src="https://shax2.s-ul.eu/LvSK0BIc"/>
+
+# [##### asdfgh instafade orig](https://shax2.s-ul.eu/mVBtUR8a)
+<img src="https://shax2.s-ul.eu/WFDFEXKy"/>
+
+# [talala boss](https://shax2.s-ul.eu/GhCXUJAU)
+<img src="https://shax2.s-ul.eu/tRK94yi1"/>
+
+# [crystal](https://shax2.s-ul.eu/aF5Om4S8)
+<img src="https://shax2.s-ul.eu/Ma6gE5jR"/>
+
 # [azerinodown](https://shax2.s-ul.eu/QgUwBt8o)
 <img src="https://shax2.s-ul.eu/oaJWLBrg"/>
 
