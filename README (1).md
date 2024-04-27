@@ -48,8 +48,8 @@
 # [yugebalnix2](https://shax2.s-ul.eu/X3nZsZgN)
 <img src="https://shax2.s-ul.eu/v9oozhYX"/>
 
-# [+GN hidden potential](https://shax2.s-ul.eu/lqdyd30u)
-<img src="https://shax2.s-ul.eu/2F01Zkay"/>
+# [+GN edit](https://shax2.s-ul.eu/7FZ3Bdcr)
+<img src="https://shax2.s-ul.eu/9S6uw2Ky"/>
 
 # [mastaszYugen](https://shax2.s-ul.eu/fuCghSsO)
 <img src="https://shax2.s-ul.eu/pLEcwy5s"/>
